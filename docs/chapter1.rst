@@ -1,15 +1,22 @@
 =================
-Otters From Space
+Chapter One
 =================
 
+Paddleboarding 
+==============
 
-Chapter One
-===========
+Oliver dipped the edge of the oat into the cloudy water ahead of him and gently pulled it back.  The river was serenely rolling around him. He pulled his paddleboard forward slightly and then just let the momentum carry him over the water. Ollie sat back lazily on his haunches, then rolled onto his back, his knees in the air.
+
+
+
+
+Olivier gets shot
+=================
 
 Mr Cavalleo sneered an ugly sneer like his soul has forgotten what
 other people might feel.
 
-The sneer stayed on his face as he pointed the large pistol at a small
+The sneer stayed on his face as he pointed the large pistol at the small
 child's head from just a few feet away, and pulled the trigger.
 
 The child, named Oliver, had two thoughts go through his head.
@@ -20,7 +27,7 @@ his room, saw him and, and ... fired.
 
 The second thought was "Oh god. I'm going to die".
 
-Emotions don't always use the brain - they have to have etra help from
+Emotions don't always use the brain - they have to have extra help from
 hormones in the body, telling the rest of the body what the brain has
 worked out. So Oliver had not actually started to be upset as the
 bullet left the gun, his hormones were still running hard to let the rest of his body know they should start crying
@@ -46,14 +53,14 @@ wet fur in circles down the arm towards the body.
 
 The bullet itself had become odd and misshapen - the back part of the
 bullet was still round and flat but it had been pushing the front half
-- the fonr half had *tried* to keep on going but had found the paw was
+- the front half had *tried* to keep on going but had found the paw was
 not going to go anywhere - and so the front part of the bullet had
 molded itself to the paw, trying to edge round between each individual
 claw like steel silly putty.
 
 
 The small furry animal was looking sideways back at Oliver.  It
-reminded Johnny of the time his friend at school Benny, had caught a
+reminded Oliver of the time his friend at school Benny, had caught a
 tennis ball thrown really hard in a game of "duck or hurt" - instead
 of the usual laugh and smile Benny had just turned and looked back at
 Oliver and gave him this "That was awesome, but I'm just going smile a
@@ -73,8 +80,12 @@ look.  Turns out that was a bad idea.
 
 
 Otters, it seems, don't like cold-hearted, vicious would-be child
-killers.  In fact, Otters really really don't like cold-hearted,
-vicious would-be child killers.  So the Otter head-butted him.  Hard.
+killers.  
+
+In fact, Otters really really don't like cold-hearted,
+vicious would-be child killers.  
+
+So the Otter head-butted him.  Hard.
 
 
 Now an otter weighs only three or four pounds, even wet.  And Mr
@@ -87,6 +98,7 @@ effect.
 It certainly would not throw Mr Cavalleo backwards fully six feet to
 land spread-eagled against the wall, brick dust spreading down.
 
+But this is what happened.
 
 The otter landed lightly back down on Oliver's lap, and jumped down to
 the floor, tossing the lump of metal that mere seconds ago was the
@@ -101,6 +113,8 @@ Oliver blinked once, quite slowly and then scrambled after the otter
 now walking out the door and down the hall, while behind the the limp
 body of Mr Cavalleo peeled itself off the wall and thumped down to the
 floor.
+
+
 
 Blurb
 =====
