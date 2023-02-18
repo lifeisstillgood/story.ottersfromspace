@@ -45,7 +45,7 @@ Olivier gets shot
 Mr Cavalleo sneered an ugly sneer and shook his aching fingers and the sneer stayed on his face as he pointed the large pistol at the small
 child's head from just a few feet away, and pulled the trigger.
 
-The child, named Oliver, had two thoughts go through his head.
+Oliver had two thoughts go through his head.
 
 The first is "He really is going to shoot me". Not like the "Get up there and
 tidy your room or I will kill you" kind of threats he was used to.  But actual
