@@ -5,7 +5,9 @@ Chapter One
 Paddleboarding 
 ==============
 
-Oliver dipped the edge of the oar into the cloudy water ahead of him and gently pulled it back.  The river was serenely rolling around him. He pulled his paddleboard forward slightly and then just let the momentum carry him over the water. Ollie sat back lazily on his haunches, then rolled onto his back, his knees in the air.  Oliver drifted gently along the river, water softly steaming along the board a few inches from his ear.  He could hear the trees rustling their leaves in the wind, and looked over at the bushes on the bend.  Last week the Kingfisher nearing there had flown out looking for food and he hoped to see him again.
+Oliver dipped the edge of the oar into the cloudy water ahead of him and gently pulled it back.  The river was rolling around him. He pulled his paddleboard forward slightly and then just let the momentum carry him over the water. Ollie sat back lazily on his haunches, then rolled onto his back, his knees in the air.  Oliver drifted gently along the river, water softly steaming along the board a few inches from his ear.  
+
+The trees slid past the sky as he looked up, the sole cloud in the sky seemed to stay still as the trees calmly ghosted past.  He closed his eyes to just listen, the trees rustling their leaves in the wind, and looked over at the bushes on the bend.  Last week the Kingfisher nearing there had flown out looking for food and he hoped to see him again.
 
 A splash caught his eye, and Oliver smiled in anticipation.  A small head bobbed above the surface off his bow, down by his right foot and a small furry arm lazily stretched out towards the board.  Oliver held his breath.  He has seen the family of otters before, and this youngster was playful and fearless, coming out a near humans was a rarity, but this family seemed unfazed by humans.
 
@@ -115,9 +117,10 @@ So the Otter head-butted him.  Hard.
 
 
 Now an otter weighs only three or four pounds, even wet.  And Mr
-Cavalleo weighs at least 20 Stone.  In normal circumstances (if you
-can ever call getting an otter nutting you between the eyeballs
-*normal*) in normal circumstances the otter would have pretty much no
+Cavalleo would be described by his closest friends, if he had any, as - well “a right fat bastard”, and weighs at least 24 Stone.  
+
+In normal circumstances (if you
+can ever call getting an otter nutting you between the eyeballs normal circumstances) the otter would have pretty much no
 effect.
 
 
@@ -135,8 +138,8 @@ bullet going to end Oliver's life over his furry shoulder.
 can find your parents."
 
 
-Oliver blinked once, quite slowly and then scrambled after the otter
-now walking out the door while behind the the limp
+Oliver blinked once, quite slowly and then scrambled after the … umm … *talking* otter
+now walking out the door while behind them the limp
 body of Mr Cavalleo peeled itself off the wall and thumped down to the
 floor.
 
@@ -146,16 +149,14 @@ Blurb
 =====
 
 Oliver thinks he is having a bad day.  His parents have been
-kidnapped, a billion dollar secret formula has been stolen, and a
-cold-blooded, evil killer has a gun pointed at his head.
+kidnapped, and a
+cold-blooded, evil killer is about to shoot him dead.
 
-All Oliver has on his side is an Otter he met in the river behind his
-house.
+But Oliver also met an otter  today.
 
 An Otter from Space.
 
-Oliver's day is about to get a lot better.  And a whole lot more
-exciting.
+Oliver's day is about to get a lot better.
 
 And anyone not on the Otter's side is about to have a really, *really*
 bad day.
